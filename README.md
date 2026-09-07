@@ -8,7 +8,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31iyoezw4z7n2nnu7zfsgy5jnha4&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=F3F6AC&bar_color_cover=false">
   </a>
   <p align="center">
-    revolverammos's HeavyFictkin'S / kin'S : GUY CRIMSON !!
+    <img src="https://i.postimg.cc/K86MtTJP/IMG-3741.jpg" width="300">
   </p>
 </p>
 <p align="center">
