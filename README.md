@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://img.shields.io/badge/%20im blind-you idiots-000000?style=flat&labelColor=000000" alt="liyue harborers">
+  <img src="https://img.shields.io/badge/%20WHATS WITH YOU PEOPLE!!-I'M BLIND!!!-000000?style=flat&labelColor=000000" alt="liyue harborers">
     </p>
 
 <p align="center">
